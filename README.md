@@ -1,0 +1,2 @@
+# Osyna
+New innovative cryptocurrency
